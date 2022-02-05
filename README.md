@@ -1,0 +1,2 @@
+# indeks
+vücut kitle indeksi
