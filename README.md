@@ -1,2 +1,2 @@
-# indeks
+# manav-kasa
 vücut kitle indeksi
